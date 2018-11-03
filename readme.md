@@ -1,1 +1,1 @@
-Let's make some money
+Let's make some money!
